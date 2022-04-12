@@ -1,1 +1,1 @@
-# bf-party-art
+# BF Party Fan art by @gensenju
